@@ -173,9 +173,7 @@ vasanthakumarkm.github.io/
 
 **Vasanthakumar KM** · Digital Transformation Leader · Dublin, Ireland
 
-- 📧 [vasanthkm66@gmail.com](mailto:vasanthkm66@gmail.com)
 - 💼 [linkedin.com/in/vasanthakumar-km](https://linkedin.com/in/vasanthakumar-km)
-- 📞 +353 894 104 411
 
 ---
 
